@@ -7,7 +7,7 @@
 
 
 ### Well he is Hotel Bernardin in Portoroz Slovenia.
-<img src="http://i.imgur.com/qt6O0Ys.png" width="60%">
+<img src="http://i.imgur.com/qt6O0Ys.png" width="70%">
 
 ### What ? be more Specific?
 
